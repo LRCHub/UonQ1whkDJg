@@ -1,4 +1,4 @@
-# KANA-BOON – シルエット - From THE FIRST TAKE
+# KANA-BOON – シルエット - From THE FIRST TAKE（feat. 山田貴洋）
 
 > **歌詞登録ステータス：同期歌詞あり**
 
